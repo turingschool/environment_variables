@@ -46,3 +46,6 @@ Break into new groups with a representative from each topic group. Together, tac
 * Regarding these three resource allocation questions, where did you have the most disagreement? Why do you think that was?
 * Did you reach consensus on any of these topics? Where? Why?
 * Try to gain some distance from the positions you read and consider your own values. What approach would you like to see Turing take toward this issue of environmental responsibility? Has that changed after being exposed to new perspectives? Why?
+
+## Debrief: (~5 Minutes)
+Before we break for lunch, each group will report their main takeaways. 
