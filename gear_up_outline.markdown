@@ -17,8 +17,10 @@ Break into groups depending on what topic you've been assigned. Read the attache
 [6 Things Every Environmentalist Needs to Know About Capitalism](http://www.critical-theory.com/environmentalist-capitalism/)  
 * Tragedy of the Commons & Nudges  
 [The Climate Connection: "Nudge Theory"](http://www.bbc.co.uk/worldservice/science/2010/11/101129_climate_connection_nudge_theory_video.shtml)  
+[Louis CK: Indians, White People, and God's Earth](https://www.youtube.com/watch?v=YWZkwuILn_s)  
 * Individual Action: A Waste of Time?  
 [Why David Cameron's "Nudge Unit" is a Waste of Time for the Environment](http://www.theguardian.com/environment/2011/mar/31/david-cameron-nudge-unit-environment)  
+[Louis CK: NYC isn't the _Environment_](https://www.youtube.com/watch?v=GTH8htzsrX4)  
 * Global Warming: The Facts  
 [Global Warming Effects and Causes: A Top Ten List](http://planetsave.com/2009/06/07/global-warming-effects-and-causes-a-top-10-list/)  
 [EPA: What Can You Do?](http://www3.epa.gov/climatechange/wycd/)  
