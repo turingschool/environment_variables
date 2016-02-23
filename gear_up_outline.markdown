@@ -15,8 +15,6 @@ Break into groups depending on what topic you've been assigned. Read the attache
 [Five Reasons Your Business Should Be Socially Responsible?](http://blog.movingworlds.org/5-reasons-your-business-should-be-socially-responsible/)  
 * Environmentalism and Capitalism: At Odds?  
 [6 Things Every Environmentalist Needs to Know About Capitalism](http://www.critical-theory.com/environmentalist-capitalism/)  
-[Title](Link)  
-[Title](Link)  
 * Tragedy of the Commons & Nudges  
 [The Climate Connection: "Nudge Theory"](http://www.bbc.co.uk/worldservice/science/2010/11/101129_climate_connection_nudge_theory_video.shtml)  
 * Individual Action: A Waste of Time?  
