@@ -25,7 +25,8 @@ Break into groups depending on what topic you've been assigned. Read the attache
 [Global Warming Effects and Causes: A Top Ten List](http://planetsave.com/2009/06/07/global-warming-effects-and-causes-a-top-10-list/)  
 [EPA: What Can You Do?](http://www3.epa.gov/climatechange/wycd/)  
 [The White House: Climate Change](https://www.whitehouse.gov/energy/climate-change)  
-
+* Religion and the Environment  
+[Stewards of the Earth](http://www.emagazine.com/magazine-archive/stewards-of-the-earth)  
 
 ## Writing: Round 1 (~10 Minutes)
 
