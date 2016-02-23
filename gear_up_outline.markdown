@@ -10,21 +10,21 @@ Today's exercise will take on an important and yet controversial topic: environm
 
 Break into groups depending on what topic you've been assigned. Read the attached essays, then tackle the questions below.
 * A case for corporate environmental responsibility  
-..* [Corporate Responsibility and the Environment: What's the Right Thing to   Do?](http://hbswk.hbs.edu/item/corporate-responsibility-and-the-environment-what-is-the-right-thing-to-do)  
-..* [Why Companies Can No Longer Afford to Ignore Their Social Responsibility?](http://business.time.com/2012/05/28/why-companies-can-no-longer-afford-to-ignore-their-social-responsibilities/)  
-..*[Five Reasons Your Business Should Be Socially Responsible?](http://blog.movingworlds.org/5-reasons-your-business-should-be-socially-responsible/)  
+ [Corporate Responsibility and the Environment: What's the Right Thing to   Do?](http://hbswk.hbs.edu/item/corporate-responsibility-and-the-environment-what-is-the-right-thing-to-do)  
+ [Why Companies Can No Longer Afford to Ignore Their Social Responsibility?](http://business.time.com/2012/05/28/why-companies-can-no-longer-afford-to-ignore-their-social-responsibilities/)  
+[Five Reasons Your Business Should Be Socially Responsible?](http://blog.movingworlds.org/5-reasons-your-business-should-be-socially-responsible/)  
 * Environmentalism and Capitalism: At Odds?  
-*[6 Things Every Environmentalist Needs to Know About Capitalism](http://www.critical-theory.com/environmentalist-capitalism/)  
-*[Title](Link)  
-*[Title](Link)  
+[6 Things Every Environmentalist Needs to Know About Capitalism](http://www.critical-theory.com/environmentalist-capitalism/)  
+[Title](Link)  
+[Title](Link)  
 * Tragedy of the Commons & Nudges  
-*[The Climate Connection: "Nudge Theory"](http://www.bbc.co.uk/worldservice/science/2010/11/101129_climate_connection_nudge_theory_video.shtml)  
+[The Climate Connection: "Nudge Theory"](http://www.bbc.co.uk/worldservice/science/2010/11/101129_climate_connection_nudge_theory_video.shtml)  
 * Individual Action: A Waste of Time?  
-*[Why David Cameron's "Nudge Unit" is a Waste of Time for the Environment](http://www.theguardian.com/environment/2011/mar/31/david-cameron-nudge-unit-environment)  
+[Why David Cameron's "Nudge Unit" is a Waste of Time for the Environment](http://www.theguardian.com/environment/2011/mar/31/david-cameron-nudge-unit-environment)  
 * Global Warming: The Facts  
-*[Global Warming Effects and Causes: A Top Ten List](http://planetsave.com/2009/06/07/global-warming-effects-and-causes-a-top-10-list/)  
-*[EPA: What Can You Do?](http://www3.epa.gov/climatechange/wycd/)  
-*[The White House: Climate Change](https://www.whitehouse.gov/energy/climate-change)  
+[Global Warming Effects and Causes: A Top Ten List](http://planetsave.com/2009/06/07/global-warming-effects-and-causes-a-top-10-list/)  
+[EPA: What Can You Do?](http://www3.epa.gov/climatechange/wycd/)  
+[The White House: Climate Change](https://www.whitehouse.gov/energy/climate-change)  
 
 
 ## Writing: Round 1 (~10 Minutes)
