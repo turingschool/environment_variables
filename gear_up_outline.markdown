@@ -10,7 +10,7 @@ Today, we will be exploring perspectives on environmenetal responsibility. Your 
 
 [Your brain on climate change: why the threat produces apathy, not action](http://www.theguardian.com/sustainable-business/2014/nov/10/brain-climate-change-science-psychology-environment-elections)
 
-#### 2. Policy & Systematic Change
+### 2. Policy & Systematic Change
 
 [Leonardo Dicaprio's 2016 Oscar Acceptance Speech](http://oscar.go.com/news/winners/watch-leonardo-dicaprios-acceptance-speech-for-best-actor-2016) - from 2:00 on
 
